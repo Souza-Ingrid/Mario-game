@@ -78,8 +78,7 @@ https://www.youtube.com/watch?v=r9buAwVBDhA
 
 ## 👩‍💻 Autora
 
-Desenvolvido por você 💙
-(Coloque aqui seu GitHub ou LinkedIn)
+Desenvolvido Ingrid Souza💙
 
 ---
 
